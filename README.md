@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AdiRaj1391
+- 👀 I’m interested in games and finance
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: aditya.ramanrajan@gmail.com
